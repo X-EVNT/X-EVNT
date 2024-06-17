@@ -9,7 +9,7 @@ $\text{\color{silver}{❝　should⠀i⠀stop⠀being⠀a⠀maid⠀?!⠀should�
 </p>
 <div align="center">
 
-[about me](https://rentry.co/cigsrette) ⠀ ⠀[free 🇵🇸](https://arab.org/click-to-help/palestine/) ⠀ ⠀[sign my ab](https://sakuya.atabook.org)
+[about me](https://rentry.co/crosu) ⠀ ⠀[free 🇵🇸](https://arab.org/click-to-help/palestine/) ⠀ ⠀[sign my ab](https://sakuya.atabook.org)
 </div>
 
 <p align="center">
