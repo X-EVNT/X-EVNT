@@ -1,16 +1,19 @@
-## Hi there 👋
+---
+<p align="center">
+$\text{\color{silver}{❝　should⠀i⠀stop⠀being⠀a⠀maid⠀?!⠀should⠀i⠀stop⠀being⠀human⠀?!　❠}}$
+</p>
 
-<!--
-**X-EVNT/X-EVNT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+<img src="https://files.catbox.moe/t1np2x.gif" width="640" height="397">
 
-Here are some ideas to get you started:
+</p>
+<div align="center">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+[about me](https://rentry.co/cigsrette) ⠀ ⠀[free 🇵🇸](https://arab.org/click-to-help/palestine/) ⠀ ⠀[sign my ab](https://sakuya.atabook.org)
+</div>
+
+<p align="center">
+<img src="https://files.catbox.moe/kgkprv.png" width="487" height="56">
+
+---
+
