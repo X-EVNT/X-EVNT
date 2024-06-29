@@ -1,6 +1,6 @@
 ---
 <p align="center">
-$\text{\color{silver}{❝　should⠀i⠀stop⠀being⠀a⠀maid⠀?!⠀should⠀i⠀stop⠀being⠀human⠀?!　❠}}$
+$\text{\color{silver}{❝　the⠀only⠀time⠀i⠀ever⠀see⠀her⠀-⠀is⠀when⠀she's⠀behind⠀me⠀in⠀the⠀mirror　❠}}$
 </p>
 
 <p align="center">
